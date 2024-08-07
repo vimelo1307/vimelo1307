@@ -12,4 +12,4 @@ Meu nome é Vitòria Aparecida de Souza Oliveria
 
 @vitòriaaparecidadesouzaoliveria
 
-![descrição do GIF](link GIF do Tenor)
+![.](https://media.tenor.com/zQV1EHnRyVMAAAAi/stitch-love.gif)
